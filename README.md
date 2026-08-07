@@ -33,9 +33,9 @@ Here are some ideas to get you started:
 • I love 70s/80s music, mostly!! 𑣲𝄞
 
 • Yes, I overuse "XD", "LOL" and emojis, it's just how I express myself best.
-
-(Whisper to interact with me if I'm not responding!! I must've switched to a different tab!)
-(I think this is a given for most people, but please do not copy my pon(y/ies)!! My main one is based off of me, and the rest are my OCs)
+_______________________________________________________________________________________________________________
+- (Whisper to interact with me if I'm not responding!! I must've switched to a different tab!)
+- (I think this is a given for most people, but please do not copy my pon(y/ies)!! My main one is based off of me, and the rest are my OCs)
 
 
 
